@@ -1,1 +1,1 @@
-# JaloliddinGofurovfirst
+# Jaloliddin Gofurov
